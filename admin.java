@@ -6,4 +6,5 @@ vc w	 	d ivwdvw
 	v jdwi wd	
 	v vwuj vcwe
 
-
+lncbdivb dwv
+ dw bdwbl dw ds kdwb dw
